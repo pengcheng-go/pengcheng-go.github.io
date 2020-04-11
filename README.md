@@ -6,6 +6,7 @@
 #### _Master of Engineering, Chemical and Biochemical Engineering_
 
 London ON, Canada\
+
 Sep. 2018 – Oct. 2019
 
 * Chemical Engineering Courses: Chemical Kinetics, Transport Process, Design and Analysis Principals
@@ -19,6 +20,7 @@ Sep. 2018 – Oct. 2019
 #### _Honors Bachelor of Science, Biology_
 
 Wuhan, China\
+
 Sep. 2014 – June 2018
 
 * Biology Core: Zoology, Botany, Microbiology, Ecology, Cell Biology, Biochemistry, Genetics, Molecular Biology
